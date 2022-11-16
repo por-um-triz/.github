@@ -1,16 +1,2 @@
-```
-Tell me about the dream where we pull the bodies out of the lake
-and dress them in warm clothes again.
-How it was late, and no one could sleep, the horses running
-until they forget that they are horses.
-It's not like a tree where the roots have to end somewhere,
-it's more like a song on a policeman's radio,
-how we rolled up the carpet so we could dance, and the days
-were bright red, and every time we kissed there was another apple
-to slice into pieces.
-Look at the light through the windowpane. That means it's noon, that means
-we're inconsolable.
-Tell me how all this, and love too, will ruin us.
-These, our bodies, possessed by light.
-Tell me we'll never get used to it.
-```
+> “You’re in a car with a beautiful boy, and he won’t tell you that he loves you, but he loves you. And you feel like you’ve done something terrible, like robbed a liquor store, or swallowed pills, or shoveled yourself a grave in the dirt, and you’re tired. You’re in a car with a beautiful boy, and you’re trying not to tell him that you love him, and you’re trying to choke down the feeling, and you’re trembling, but he reaches over and he touches you, like a prayer for which no words exist, and you feel your heart taking root in your body, like you’ve discovered something you didn’t even have a name for.” 
+ 
